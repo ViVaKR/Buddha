@@ -1,3 +1,2 @@
-# Buddha
+# Buddhism
 
-## 1. 금강반야바라밀경
